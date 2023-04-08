@@ -1,3 +1,3 @@
 # blazingtool
 
-nie wiem nudzi mi sie
+nie wiem co to za gowno
